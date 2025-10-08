@@ -1,1 +1,1 @@
-# GitTestKiduyarova
+# GitTestKudiyarova
